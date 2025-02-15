@@ -6,7 +6,7 @@
 -it doesnt really matter what pronouns you call me by cause i really do not care.
 -im currently intrested in a developing a game with the same mechanics as omori.
 
--Fun fact: none, there are no fun facts today cause i simply am too tired to come up with some.
+-Fun fact: 2/15/25 processing is kinda annoying to work with
 -(currently sick as a type this)
 
 also slight rant but how did computers go from these big ol machines the size of garages to something that is literally as small as the very things that pass through your body every
